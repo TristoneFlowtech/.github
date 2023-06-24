@@ -1,3 +1,4 @@
+http://www.tristone.com/media/1010/company-building-frankfurt.jpg
 # VISION
 At TRISTONE Group, we focus on our customers. We listen to them. We build and we deliver what they need and what we promised. With the best thinking and the best quality within one-digit external ppm level available.
 
